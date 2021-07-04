@@ -1,1 +1,1 @@
-# McKincey
+Стажировки от McKinsey
